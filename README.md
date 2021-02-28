@@ -1,2 +1,0 @@
-# LemonxV4
-Cursed
